@@ -11,5 +11,7 @@
 ### 👯 I’m not looking for a collaboration at the moment but for sure will do in the near future
 
 ### 📫 How to reach me:
-*[Email](Concepcion_eman@yahoo.com)
-*[LinkedIn](https://www.linkedin.com/in/eman-concepcion-a209b8231/)
+
+* [Email](Concepcion_eman@yahoo.com)
+
+* [LinkedIn](https://www.linkedin.com/in/eman-concepcion-a209b8231/)
